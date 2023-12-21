@@ -1,2 +1,2 @@
-# [littlerick88.com](https://littlerick88.com)
+# [littlerick88.com](https://rkenneybrew.github.io/littlerick88.com/)
  NickName
